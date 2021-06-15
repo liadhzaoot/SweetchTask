@@ -1,7 +1,8 @@
 # SweetchTask
 
-Home Test Sweetch \n
-added to email ReadMe Word file 
+Home Test Sweetch.
+
+added to email ReadMe Word file. 
 
 Liad hazoot
 liadhazoot5@gmail.com
