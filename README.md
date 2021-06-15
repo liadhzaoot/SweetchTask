@@ -4,6 +4,6 @@ Home Test Sweetch.
 
 added to email ReadMe Word file. 
 
-Liad hazoot; 
+Liad Hazoot 
  liadhazoot5@gmail.com
 
