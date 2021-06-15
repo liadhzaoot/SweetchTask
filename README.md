@@ -1,6 +1,6 @@
 # SweetchTask
 
-Home Test Sweetch 
+Home Test Sweetch \n
 added to email ReadMe Word file 
 
 Liad hazoot
