@@ -2,7 +2,7 @@
 
 Home Test Sweetch.
 
-added to email ReadMe Word file. 
+Added to email ReadMe Word file. 
 
 Liad Hazoot 
  liadhazoot5@gmail.com
